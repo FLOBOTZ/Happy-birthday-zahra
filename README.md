@@ -1,2 +1,2 @@
 # Happy-birthday-zahra
-awikwok banget njir
+intinya buat ngucapin hbd sekalian ngungkapin perasaan
